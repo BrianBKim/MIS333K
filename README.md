@@ -5,4 +5,4 @@ Time to die for a few weeks
 
 no we gonna win muahahahahaha
 
-Mark wang wrote a line here.
+Mark Wang wrote a line here.
